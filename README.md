@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @nihasrahman
+- 👀 I’m interested in Blockchain, Artificial Intelligence, Automation
+- 📫 How to reach me -> https://www.linkedin.com/in/nihas/
